@@ -1,4 +1,4 @@
-★ - ### Litchi NUKER Isn't finished ! - ★
+### ★ - Litchi NUKER Isn't finished ! - ★
 
 ---
 

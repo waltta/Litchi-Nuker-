@@ -48,4 +48,4 @@
 ☆ @waltta#6821 ☆
 </h2>
 
-Litchi Nuker is a remake of the interface of the Hazard Nuker
+credit to Rdimo ! Litchi Nuker is a remake of the interface of the Hazard Nuker
